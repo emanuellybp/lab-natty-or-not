@@ -30,4 +30,7 @@ A experiência mostrou que, quando usada de forma consciente, a IA pode ser uma 
 ------------
 
 🎧 **Arquivo do Podcast:**  
-- https://drive.google.com/file/d/19ycCXfElLDhMDf46f0F5s_YZdIBaqvEd/view?usp=sharing
+
+ https://github.com/user-attachments/assets/8a0208b4-38ad-45e7-adf1-28819a9549fd
+
+
